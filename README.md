@@ -1,1 +1,0 @@
-# gurudeep310.github.io
